@@ -1,2 +1,1 @@
 # Virat-Kohli-Profile
-# biography
